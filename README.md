@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="445" height="250" alt="choso-jujutsu-kaisen-lonely-bqbuzino5v4xx24c" src="https://github.com/user-attachments/assets/254474cc-6353-43f4-9575-442b2bef1fbc" />
+
 
 <!--
 **youfoldme/youfoldme** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
