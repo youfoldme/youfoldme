@@ -1,4 +1,5 @@
-<img width="445" height="250" alt="choso-jujutsu-kaisen-lonely-bqbuzino5v4xx24c" src="https://github.com/user-attachments/assets/254474cc-6353-43f4-9575-442b2bef1fbc" />
+<img width="640" height="360" alt="8fc4cd008f7a188eedd5c9a9219c3dab" src="https://github.com/user-attachments/assets/55f563d1-8aa5-4f1b-bbc9-2becb75f04c8" />
+
 
 
 <!--
